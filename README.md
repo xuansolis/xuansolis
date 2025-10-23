@@ -11,7 +11,7 @@
 <img src="https://media.discordapp.net/attachments/1430874004889141283/1430936043452108840/Untitled_design.jpg?ex=68fb968a&is=68fa450a&hm=be5c2045757877c1ebabb66f21207b2546f3f2f1cff0515a7e3ae446999c47ad&=&format=webp&width=807&height=455" width="900" height="600" alt="cute divider1"/>
 
 #  <p align="center"> ⊹ ࣪ ˖ 𝚇𝚞á𝚗 ₊˚⊹ 
- 𝗦𝘁𝗮𝘁𝘂𝘀: Too energetic for mornings
+ ⤷ 𝗦𝘁𝗮𝘁𝘂𝘀: Too energetic for mornings
 <img src="https://media.discordapp.net/attachments/1430874004889141283/1430947215483863110/image.png?ex=68fba0f1&is=68fa4f71&hm=577bc15026ac09db6e080e5172202e4d4134cad6e865a983f6dd33176af8ccce&=&format=webp&quality=lossless&width=353&height=352" width="60" height="60" alt="cute divider1"/>
 
 <p align="center">꒰ঌ ₊˚⊹ 𓂃𓂃𓂃 ⋆˚₊⊹ ₊˚໒꒱</p> 
