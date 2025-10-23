@@ -14,9 +14,7 @@
  ⤷ 𝗦𝘁𝗮𝘁𝘂𝘀: Too energetic for mornings
 <img src="https://media.discordapp.net/attachments/1430874004889141283/1430947215483863110/image.png?ex=68fba0f1&is=68fa4f71&hm=577bc15026ac09db6e080e5172202e4d4134cad6e865a983f6dd33176af8ccce&=&format=webp&quality=lossless&width=353&height=352" width="70" height="70" alt="cute divider1"/>
 
-<img src="https://64.media.tumblr.com/bee4701d5f546d8e58ce462dd4ba44e1/f85c482989dd06da-bd/s400x600/76dfc0dfa7579872368d5af90a6435e73bc35e03.gifv" width="260" height="260" alt="cute divider4"/>
-
-<p align="center">꒰ঌ ₊˚⊹ 𓂃𓂃𓂃 ⋆˚₊⊹ ₊˚໒꒱</p> 
+<img src="https://64.media.tumblr.com/0c9c9fb88fc650f6640644f936d2333c/1ac44f8693b27cdd-95/s1280x1920/1d5b10127510c7ed192073d58ab59cf789aa3d28.pnj" width="360" height="360" alt="cute divider4"/>
 
 ✦ 𝙃𝙚𝙡𝙡𝙤 !  <img src="https://64.media.tumblr.com/2aa557bc81ea83d2b60a672404b80108/7527b9fe193f0379-5d/s75x75_c1/3c62d019df56ee68e024089448165975926c9b6b.gifv" width="40" height="40" alt="cute divider4"/>  
 My name is **Xuán** — but you can call me **Xuan** without the á **(˶˃ ᵕ ˂˶)**  
@@ -32,11 +30,14 @@ but don't assume I'm all soft... I *can* dom you /srs
 
 ---
 
+
+
 > ₊˚ʚ I am a **talker** ɞ₊˚   
 *You've been warned.* <𝟑
 
  <img src="https://media.discordapp.net/attachments/1430874004889141283/1430968233032421509/ezgif-544db82636c431.gif?ex=68fbb484&is=68fa6304&hm=796105c56b3464d4f8829608f2a643214579e1ba994b9ca8e783f61bfd6b1e4e&=&width=275&height=183" width="100" height="100" alt="cute divider4"/>
 
+<p align="center">꒰ঌ ₊˚⊹ 𓂃𓂃𓂃 ⋆˚₊⊹ ₊˚໒꒱</p> 
 
  
 
