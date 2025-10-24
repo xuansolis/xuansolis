@@ -2,6 +2,7 @@
 
 ---
 
+
   <div align='center'>
 </p>
 
@@ -26,6 +27,8 @@ My friendlist is **very open** ♡
 Additionally, I **LOVE LOVE LOVE** *soft colors* **!!!**  
 but don't assume I'm all soft... I *can* dom you /srs  
 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=xuansolis&label=　　Mwa　　　&color=fadce9&style=flat" alt="xuansolisviews" />  
+  
 ⋆˚✧˖° ₊˚⊹ ◝(ᵔᗜᵔ)◜ ⋆˚₊⊹ ₊˚ 𖹭
 
 ---
