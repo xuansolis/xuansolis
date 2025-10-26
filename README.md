@@ -28,8 +28,7 @@ You’ll often find me either alone *or* with friends,
 but you’re always welcome to approach or whisper **any**time !   
 My friendlist is **very open** ♡ 
 
-Additionally, I **MIGHT** *flirt* on accident,  
-so please tell me in advance if you are not comfortable with that **!!!**  
+Additionally, I'm a **minor** *!!!*  
 
 <div align='center'>
 </p>
