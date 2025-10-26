@@ -47,7 +47,7 @@ Additionally, I'm a **minor** *!!!*
 
 
 
-> ₊˚ʚ I am a **flirt** ɞ₊˚   
+> ₊˚ʚ I am a **yapper** ɞ₊˚   
 *You've been warned.* <𝟑
 
  <img src="https://64.media.tumblr.com/3c427a3a600327f41901f395a91bc0d7/97f92ba2ccff78bb-5d/s100x200/d130ed6464454d9c6271f66695ba08b0d4322ca5.gifv" width="100" height="100" alt="cute divider4"/>
