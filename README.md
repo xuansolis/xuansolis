@@ -23,16 +23,15 @@
 ✦ 𝙃𝙚𝙡𝙡𝙤 !  <img src="https://64.media.tumblr.com/805ec7cc122215195a6c3a86adecdd7e/24689073eebccebc-5d/s250x400/a07a6ff67e21b5c185f3614e45a0af2c0aec74b4.pnj" width="27" height="27" alt="cute divider4"/>  
 You can call me Xuán, but Xuan or Solis works if that’s easier.
 
-I’m a mix of quiet and loud, depending on the mood. Most of the time I’m alone, either offtab or making OCs. I’m very talkative, usually typing in caps or going off about the most random nonsense. But I’m not just all fun. I can flip into serious mode in a heartbeat. Suddenly I’m listening carefully, giving advice, helping someone untangle their thoughts like a professional without the degree. I guess you could call it “therapist friend mode".
+I'm either with friends or alone, but either way you're free to whisper/approach anytime.
 
-I joke, tease, and flirt a lot, never to make anyone uncomfortable, just to keep things light. If you ever feel uncomfortable, tell me. I’ll listen and adjust.
+I joke, tease, and flirt a lot, just to keep things light. If you ever feel uncomfortable, tell me. I’ll listen and adjust. (I love bantering)
 
-I love writing, music, and cats, and I value quiet company almost as much as conversation that won’t quit. I like people who can sit in the silence with me just as much as those who make me laugh until my sides hurt. So if you feel like saying hi, whispering, or just hanging out in any way, don’t hesitate.
+I love writing, music, and cats. I like people who can sit in the silence with me just as much as those who make me laugh until my sides hurt. So if you feel like saying hi, whispering, or just hanging out in any way, don’t hesitate.
 
-If I ever seem distant, weird, or lost in my head, don’t just shrug it off. Nudge me. Call me out. I promise I’m approachable and probably more present than I look. And in return, I’ll do my best to make you feel seen, heard, and entertained, because that’s kind of my thing.
-
-AND LASTLY, I LOVE, LOVE, LOVE CONVERSATIONS! So if you’re bored and see “w2i” in my name, approach me.
-If you see “c+h” in my name, no need to whisper(Unless wanted), just lunge at me.
+If you find these in my name:
+w2i : Whisper anytime even if I'm offtab or with friends. I'll be more than happy to engage in a conversation with you (Silly or srs).
+c+h : Whisper me first before cuddling but I'd probably welcome you either way.
 
 <div align='center'>
 </p>
