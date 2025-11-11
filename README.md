@@ -29,9 +29,9 @@ I joke, tease, and flirt a lot, just to keep things light. If you ever feel unco
 
 I love writing, music, and cats. I like people who can sit in the silence with me just as much as those who make me laugh until my sides hurt. So if you feel like saying hi, whispering, or just hanging out in any way, don’t hesitate.
 
-If you find these in my name:
-w2i : Whisper anytime even if I'm offtab or with friends. I'll be more than happy to engage in a conversation with you (Silly or srs).
-c+h : Whisper me first before cuddling but I'd probably welcome you either way.
+### If you find these in my name:
+**w2i** = Whisper anytime even if I'm offtab or with friends. I'll be more than happy to engage in a conversation with you (Silly or srs).  
+**c+h** = Whisper before cuddling, but I'd probably welcome you either way.  
 
 <div align='center'>
 </p>
