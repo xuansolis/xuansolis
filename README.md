@@ -21,19 +21,13 @@
 
 
 ✦ 𝙃𝙚𝙡𝙡𝙤 !  <img src="https://64.media.tumblr.com/805ec7cc122215195a6c3a86adecdd7e/24689073eebccebc-5d/s250x400/a07a6ff67e21b5c185f3614e45a0af2c0aec74b4.pnj" width="27" height="27" alt="cute divider4"/>  
-You can call me Xuán, but Xuan or Solis works if that’s easier.
+You can call me Xuán, but Xuan or Solis works if that’s easier
 
-I'm either with friends or alone, but either way you're free to whisper/approach anytime.
-
-I joke, tease, and flirt a lot, just to keep things light. If you ever feel uncomfortable, tell me. I’ll listen and adjust. (I love bantering)
-
-I love writing, music, and cats. I like people who can sit in the silence with me just as much as those who make me laugh until my sides hurt. So if you feel like saying hi, whispering, or just hanging out in any way, don’t hesitate.
-
-I actually don't talk all this serious UNLESS I have my therapist mode on. I'm talkative asffff on like THE MOST RANDOM OR NONSENSE SHI EVER. I am also married to emojis ✌️,😔,🤟,🥰,😘,🧘 and saying ILYSMMMM to my friends.
+I'm either with friends or alone, but either way you can approach anytime (I LOVE MAKING FRIENDS)
 
 ### If you find these in my name:
-**w2i** = Whisper anytime even if I'm offtab or with friends. I'll be more than happy to engage in a conversation with you (Silly or srs).  
-**c+h** = Whisper before cuddling, but I'd probably welcome you either way.  
+***w2i*** = Whisper anytime even if I'm offtab or with friends. I'll be more than happy to engage in a conversation with you (Silly or srs)    
+***c+h*** = Whisper before cuddling, but I'd probably welcome you either way <3
 
 <div align='center'>
 </p>
